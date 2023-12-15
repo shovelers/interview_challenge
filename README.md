@@ -74,7 +74,7 @@ If you self-identify as a growth hire, but are passionate about ramping up in th
 
 # Questions
 
-Any queries or doubts, drop by #shovelling-challenge on our [discord](https://discord.gg/xg4eH5qHX)
+Any queries or doubts, drop by #shovelling-challenge on our [discord](https://discord.gg/PmzsJeembE)
 The point of contact for this process is Prashant Mittal, he can be reached at: [prashant@shovel.company](mailto:prashant@shovel.company) & on the discord
 
 # Submitting
